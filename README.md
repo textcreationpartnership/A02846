@@ -35,80 +35,90 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The strong helper, offering to beare euery mans burthen. Or, A treatise, teaching in all troubles ho
+
+1. TO THE VVOR. shipfull and his most kind and louing friends, Master Israel Owen, and Mis. Bathshaba Owen his wife.
+
+1. To him that is wearie and laden.
+
+1. The Contents of the seuerall Chapters of this booke.
+
+1. Faults escaped in Printing.
+
 #####Body#####
 
-1. CHAP. 1.
+1. THE STRONG HELPER.
 
-1. CHAP. 2.
+    _ CHAP. 1.
 
-1. CHAP. 3.
+    _ CHAP. 2.
 
-1. CHAP. 4.
+    _ CHAP. 3.
 
-1. CHAP. V.
+    _ CHAP. 4.
 
-1. CHAP. VI.
+    _ CHAP. V.
 
-1. CHAP. VII.
+    _ CHAP. VI.
 
-1. CHAP. 8.
+    _ CHAP. VII.
 
-1. CHAP. IX.
+    _ CHAP. 8.
 
-1. CHAP. X.
+    _ CHAP. IX.
 
-1. CHAP. XI.
+    _ CHAP. X.
 
-1. CHAP. XII.
+    _ CHAP. XI.
 
-1. CHAP. XIII.
+    _ CHAP. XII.
 
-1. CHAP. XIIII.
+    _ CHAP. XIII.
 
-1. CHAP. XV.
+    _ CHAP. XIIII.
 
-1. CHAP. XVI.
+    _ CHAP. XV.
 
-1. CHAP. XVII.
+    _ CHAP. XVI.
 
-1. CHAP. XVIII.
+    _ CHAP. XVII.
 
-1. CHAP. XIX.
+    _ CHAP. XVIII.
 
-1. CHAP. XX.
+    _ CHAP. XIX.
 
-1. CHAP. XXI.
+    _ CHAP. XX.
 
-1. CHAP. XXII.
+    _ CHAP. XXI.
 
-1. CHAP. XXIII.
+    _ CHAP. XXII.
 
-1. CHAP. XXIIII.
+    _ CHAP. XXIII.
 
-1. CHAP. XXV.
+    _ CHAP. XXIIII.
 
-1. CHAP. XXVI.
+    _ CHAP. XXV.
 
-1. CHAP. XXVII.
+    _ CHAP. XXVI.
 
-1. CHAP. XXVIII.
+    _ CHAP. XXVII.
 
-1. CHAP. XXIX.
+    _ CHAP. XXVIII.
 
-1. CHAP. XXX.
+    _ CHAP. XXIX.
 
-1. CHAP. XXXI.
+    _ CHAP. XXX.
 
-1. CHAP. XXXII
+    _ CHAP. XXXI.
 
-1. CHAP. XXXIII.
+    _ CHAP. XXXII
 
-1. CHAP. XXXIIII.
+    _ CHAP. XXXIII.
 
-1. CHAP. XXXV.
+    _ CHAP. XXXIIII.
 
-1. CHAP. XXXVI.
+    _ CHAP. XXXV.
+
+    _ CHAP. XXXVI.
 
 **Types of content**
 
